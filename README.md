@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on I am especially interested in collaborating on projects that improve safety and operational efficiency in high-stakes environments.
 - 📫 How to reach me:
     📧 Email: vinovijayan@gmail.com
-    💼 LinkedIn: linkedin.com/in/vinod-vv-361546107
+    💼 LinkedIn: linkedin.com/in/vinod-vv
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: During my service in the Indian Air Force, I reduced aircraft armament downtime by 15% with proactive maintenance strategies and participated in over 500+ missions. Now, I use that same drive to automate workflows and develop tools that make complex tasks simpler and faster!
 
